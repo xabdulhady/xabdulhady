@@ -51,7 +51,7 @@ I'm open to professional connections, technical discussions, and opportunities t
 
 - **GitHub:** [@xabdulhady](https://github.com/xabdulhady)
 - **LinkedIn:** [LinkedIn Profile](https://linkedin.com/in/xabdulhady)
-- **Contact Number:** [+92 330 7800 101](tel:+923307800101)
+- **Contact Number:** [+92 330 7800 101](https://wa.me/923307800101)
 - **Email:** abdulhadi748816@gmail.com
 
 ---
